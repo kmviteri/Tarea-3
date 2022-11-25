@@ -20,6 +20,7 @@
 ![image](https://user-images.githubusercontent.com/117187676/203900852-c378a77c-a141-4af8-bb33-b6399d5e0ca0.png)
 
 * Capitulo 6
+
 ![image](https://user-images.githubusercontent.com/117187676/203900875-c83b650b-a451-4615-a6ab-10f3df454695.png)
 
 ![image](https://user-images.githubusercontent.com/117187676/203900879-cf6c75b9-1c1b-4fed-8c36-cde37cfa8ca3.png)
