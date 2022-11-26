@@ -31,3 +31,26 @@
 
 ![image](https://user-images.githubusercontent.com/117187676/203900897-f284fc04-6d45-4b9c-aa35-f31cb14e4578.png)
 
+# 3. EXPLICACION Y RESOLUCION DE EJERCICIOS O PROBLEMAS
+se hara la resolucion de los problemas y ejercicios con numeral impar
+
+*CPITULO 5
+
+![Altamirano_Gustavo_CAP5_TH2 docx (1)_page-0002](https://user-images.githubusercontent.com/117187676/204063783-2f35f37a-65a8-4dac-aeac-c8326574acd1.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx (1)_page-0003](https://user-images.githubusercontent.com/117187676/204063787-e3811591-b5d2-449d-a6be-0950dc9ac1e5.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx (1)_page-0004](https://user-images.githubusercontent.com/117187676/204063798-583f437b-6fc9-4179-9a7c-29b741eb9a31.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx (1)_page-0005](https://user-images.githubusercontent.com/117187676/204063806-571df308-007a-4ccc-87e1-28af3e921d52.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx 2222_page-0006](https://user-images.githubusercontent.com/117187676/204070031-40538340-5a7a-4a07-96dc-4255f81297ee.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx 2222_page-0007](https://user-images.githubusercontent.com/117187676/204070021-0ec26830-7709-4c8e-8771-c2ea4cb52a4a.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx 2222_page-0008](https://user-images.githubusercontent.com/117187676/204070024-adf43875-b919-4a64-a566-5339d6a6561d.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx 2222_page-0009](https://user-images.githubusercontent.com/117187676/204070026-5ec66a27-557f-41fc-8224-f343d5fa9c58.jpg)
+
+![Altamirano_Gustavo_CAP5_TH2 docx 2222_page-0010](https://user-images.githubusercontent.com/117187676/204070029-68b3d980-1eb2-4776-ae8b-10fc9000c12a.jpg)
+
