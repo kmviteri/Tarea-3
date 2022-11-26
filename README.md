@@ -54,3 +54,16 @@ se hara la resolucion de los problemas y ejercicios con numeral impar
 
 ![Altamirano_Gustavo_CAP5_TH2 docx 2222_page-0010](https://user-images.githubusercontent.com/117187676/204070029-68b3d980-1eb2-4776-ae8b-10fc9000c12a.jpg)
 
+* CAPITULO 6
+
+![Muestre cómo conectar los resistores de la figura 6_page-0001](https://user-images.githubusercontent.com/117187676/204071273-d21a59bc-9695-4a7b-80e2-bc7951320468.jpg)
+
+![Muestre cómo conectar los resistores de la figura 6_page-0002](https://user-images.githubusercontent.com/117187676/204071259-384de175-d1d1-4ae7-9083-57d58beed0dd.jpg)
+
+![Muestre cómo conectar los resistores de la figura 6_page-0003](https://user-images.githubusercontent.com/117187676/204071262-7f125a3f-edb6-4580-a6bb-c8bbbffd8488.jpg)
+
+![Muestre cómo conectar los resistores de la figura 6_page-0004](https://user-images.githubusercontent.com/117187676/204071266-df1dcc44-567c-49cd-bdc3-b24a4d5d41d8.jpg)
+
+# 4. VIDEO
+https://www.youtube.com/watch?v=tXUQlIbe_OQ
+
